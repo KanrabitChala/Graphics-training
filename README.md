@@ -2,3 +2,4 @@
 ![dinu logo](https://github.com/user-attachments/assets/9ad056bb-d9e2-44b3-9048-f20f5dd25c0c)
 ![Uploading kanich.jpg…]()
 ![Ethiopian map flag](https://github.com/user-attachments/assets/08ac3b1f-f61c-4d09-8c10-9b239745295b)
+<img width="335" alt="logos for kc" src="https://github.com/user-attachments/assets/bb4632ac-3108-44d9-b20a-6d296ee79379">
